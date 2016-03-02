@@ -8,8 +8,8 @@ Harvey (owner) is a normal student doing blogs every Wednesday!
 
 ### More Information
 
-A place to include any other types of information that you'd like to include about yourself.
+My name is Harvey and I will be blogging every Wednesday Uk time.
 
 ### Contact me
 
-[harvey.russell@challoners.org](mailto:harvey.russell@challoners.org)
+[harvey@oandhsport.com](mailto:harvey@oandhsport.com)
